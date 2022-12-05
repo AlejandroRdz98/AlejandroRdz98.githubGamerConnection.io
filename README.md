@@ -1,2 +1,2 @@
-# AlejandroRdz98.githubGamerConnection.io
+# AlejandroRdz98.github.io
 Proyecto de Negocios electronicos
